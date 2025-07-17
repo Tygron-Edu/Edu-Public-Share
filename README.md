@@ -6,4 +6,4 @@ Zie ook: https://www.tygron.com/nl/
 
 Voor vragen over licenties: info@tygron.com
 
-Voor vbragen over gebruik: support@tygron.com
+Voor vragen over gebruik: support@tygron.com
